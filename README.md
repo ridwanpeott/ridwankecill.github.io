@@ -1,1 +1,0 @@
-# ridwankecill.github.io
